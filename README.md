@@ -2,9 +2,9 @@
 
 
 ![callie](https://twst.ju.mp/assets/images/gallery07/a5715e8a_original.png?v=efb2b9ff)
-              ㅤ   **𓈒♡ໃ゛ㅤ ͜𓏼 ̣̣˚  ⠀🏩⠀⠀⠀𝓘chᵢg0**⠀⠀
+              ㅤ   **𓈒♡ໃ゛ㅤ ͜𓏼 ̣̣˚  ⠀🏩⠀⠀⠀𝚰𝖼ɦ𝗂𝗀ⱺ**⠀⠀
 
-ㅤㅤ![strawberry](https://wilardo.crd.co/assets/images/gallery02/fcc720c7_original.gif?v=31132c10)ㅤㅤ       they/she/faer    ¹3 ( ྀི  > ♡ `𓏼)
+ㅤㅤ![strawberry](https://wilardo.crd.co/assets/images/gallery02/fcc720c7_original.gif?v=31132c10)ㅤㅤ       they/she/faer    3teen ಣ܄ ˚ִִ 
 
  ㅤㅤㅤㅤ       [strawpage](https://strawbe3ryfulm0thz.straw.page)ㅤㅤ     [ATABOOK!](https://l0vee1s1chigo.atabook.org/) 
 
