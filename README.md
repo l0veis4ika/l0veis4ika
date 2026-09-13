@@ -3,12 +3,11 @@
 
 ![callie](https://twst.ju.mp/assets/images/gallery07/a5715e8a_original.png?v=efb2b9ff)
               ㅤ   **𓈒♡ໃ゛ㅤ ͜𓏼 ̣̣˚  ⠀🏩**⠀⠀⠀
-              ${\textsf{\color{#FFFFF0}𝚰𝖼ɦ𝗂𝗀ⱺ}}$⠀⠀
+              ${\textsf{\color{#F3A2D7}𝚰𝖼ɦ𝗂𝗀ⱺ}}$⠀⠀
 
-ㅤㅤ![strawberry](https://wilardo.crd.co/assets/images/gallery02/fcc720c7_original.gif?v=31132c10)ㅤㅤ       they/she/faer    3teen ಣ܄ ˚ִִ 
-ㅤㅤㅤㅤ       [strawpage](https://strawbe3ryfulm0thz.straw.page)ㅤㅤ     [ATABOOK!](https://l0vee1s1chigo.atabook.org/) 
+ㅤㅤ![strawberry](https://wilardo.crd.co/assets/images/gallery02/fcc720c7_original.gif?v=31132c10)ㅤㅤ       ${\textsf{\color{#F1F4AA}  they}}$   / ${\textsf{\color{#D356AB}she}}$ / ${\textsf{\color{#DFE185}  he  }}$ /  ${\textsf{\color{#D356AB}faer}}$               3teen ಣ܄ ˚ִִ [strawpage](https://strawbe3ryfulm0thz.straw.page)ㅤㅤ      [ATABOOK!](https://l0vee1s1chigo.atabook.org/) 
 
    
-![cute](https://wilardo.crd.co/assets/images/gallery02/de77ed42_original.gif?v=31132c10) ㅤㅤㅤㅤ      ![](https://komarev.com/ghpvc/?username=tl0ve1s4ika&color=d380ce&label=+++PASTRIES++ORDERED+++&abreviated=true)
+![cute](https://wilardo.crd.co/assets/images/gallery02/de77ed42_original.gif?v=31132c10) ㅤㅤㅤㅤ       ![](https://komarev.com/ghpvc/?username=tl0ve1s4ika&color=d380ce&label=+++PASTRIES++ORDERED+++&abreviated=true)
 
 <img width="393" height="136" alt="1000010351" src="https://github.com/user-attachments/assets/4d033c79-bdbc-4e61-b8b3-281d74077879" />
