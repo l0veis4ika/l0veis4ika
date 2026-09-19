@@ -1,4 +1,4 @@
-<img width="411" height="28" alt="1000010350" src="https://github.com/user-attachments/assets/32aedcb8-c2b2-4494-94b8-efbebdc5293d" />
+<img width="419" height="50" alt="1000010350" src="https://github.com/user-attachments/assets/9e587cdc-1163-4c9c-a65a-11e3626caa8d" />
 
 ![1000011207](https://github.com/user-attachments/assets/d0eb5a96-139e-4802-93fa-103e40c6d3ed)
               ㅤ   **𓈒♡ໃ゛ㅤ ͜𓏼 ̣̣˚  ⠀🏩**⠀⠀⠀
@@ -9,4 +9,4 @@
    
 ![cute](https://wilardo.crd.co/assets/images/gallery02/de77ed42_original.gif?v=31132c10) ㅤㅤㅤㅤ       ![](https://komarev.com/ghpvc/?username=tl0ve1s4ika&color=d380ce&label=+++PASTRIES++ORDERED+++&abreviated=true)
 
-<img width="393" height="136" alt="1000010351" src="https://github.com/user-attachments/assets/4d033c79-bdbc-4e61-b8b3-281d74077879" />
+<img width="314" height="93" alt="1000010350" src="https://github.com/user-attachments/assets/baee842d-2f0e-4a86-8cfe-860e3268efeb" />
