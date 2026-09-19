@@ -1,7 +1,6 @@
 <img width="411" height="28" alt="1000010350" src="https://github.com/user-attachments/assets/32aedcb8-c2b2-4494-94b8-efbebdc5293d" />
 
-
-![callie](https://twst.ju.mp/assets/images/gallery07/a5715e8a_original.png?v=efb2b9ff)
+![1000011207](https://github.com/user-attachments/assets/d0eb5a96-139e-4802-93fa-103e40c6d3ed)
               ㅤ   **𓈒♡ໃ゛ㅤ ͜𓏼 ̣̣˚  ⠀🏩**⠀⠀⠀
               ${\textsf{\color{#F3A2D7}𝚰𝖼ɦ𝗂𝗀ⱺ}}$⠀⠀
 
