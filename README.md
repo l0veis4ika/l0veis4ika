@@ -7,7 +7,9 @@
 ㅤㅤ![strawberry](https://wilardo.crd.co/assets/images/gallery02/fcc720c7_original.gif?v=31132c10)ㅤㅤ       ${\textsf{\color{#F1F4AA}  they}}$   ${\textsf{\color{#cea7b8}╱ }}$ ${\textsf{\color{#D356AB}she}}$ ${\textsf{\color{#cea7b8}╱ }}$  ${\textsf{\color{#DFE185}  he  }}$ ${\textsf{\color{#cea7b8}╱ }}$   ${\textsf{\color{#D356AB}faer}}$               ${\textsf{\color{#c4b99b}3teen}}$  ಣ܄ ˚ִִ ${\textsf{\color{#d9a7c2}A unicorn forevs!!. . (⁠๑⁠•⁠﹏⁠•⁠)}}$
 
 [STR★W](https://strawbe3ryfulm0thz.straw.page) [ATABOOK!](https://l0vee1s1chigo.atabook.org/)
- [PRONOUNS](https://pronouns.cc/@Strawb3eryfulM4nate3) [ଘ(੭*ˊᵕˋ)੭*](https://arab.org/click-to-help/palestine/)
+ [PRONOUNS](https://pronouns.cc/@Strawb3eryfulM4nate3) [<img width="99" height="56" alt="1000011335" src="https://github.com/user-attachments/assets/887473e2-783a-4085-891f-af6aece4cdac" />](https://arab.org/click-to-help/palestine/)
+ 
+
 
    
 ![cute](https://wilardo.crd.co/assets/images/gallery02/de77ed42_original.gif?v=31132c10) ㅤㅤㅤㅤ       ![](https://komarev.com/ghpvc/?username=tl0ve1s4ika&color=d380ce&label=+++PASTRIES++ORDERED+++&abreviated=true)
