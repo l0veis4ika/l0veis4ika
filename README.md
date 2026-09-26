@@ -4,7 +4,7 @@
               ㅤ   **𓈒♡ໃ゛ㅤ ͜𓏼 ̣̣˚  ⠀🏩**⠀⠀⠀
               ${\textsf{\color{#F3A2D7}𝚰𝖼ɦ𝗂𝗀ⱺ}}$⠀⠀
 
-ㅤㅤ![strawberry](https://wilardo.crd.co/assets/images/gallery02/fcc720c7_original.gif?v=31132c10)ㅤㅤ       ${\textsf{\color{#F1F4AA}  they}}$   ${\textsf{\color{#cea7b8}╱ }}$ ${\textsf{\color{#D356AB}she}}$ ${\textsf{\color{#cea7b8}╱ }}$  ${\textsf{\color{#DFE185}  he  }}$ ${\textsf{\color{#cea7b8}╱ }}$   ${\textsf{\color{#D356AB}faer}}$               ${\textsf{\color{#c4b99b}3teen}}$  ಣ܄ ˚ִִ ${\textsf{\color{#d9a7c2}A unicorn forevs!!. . (⁠๑⁠•⁠﹏⁠•⁠)}}$
+ㅤㅤ![strawberry](https://wilardo.crd.co/assets/images/gallery02/fcc720c7_original.gif?v=31132c10)ㅤㅤ       ${\textsf{\color{#F1F4AA}  they}}$   ${\textsf{\color{#cea7b8}╱ }}$ ${\textsf{\color{#D356AB}she}}$ ${\textsf{\color{#cea7b8}╱ }}$  ${\textsf{\color{#DFE185}  he  }}$ ${\textsf{\color{#cea7b8}╱ }}$   ${\textsf{\color{#D356AB}faer}}$               ${\textsf{\color{#c4b99b}3teen}}$  ಣ܄ ˚ִִ ${\textsf{\color{#d9a7c2}(⁠๑⁠•⁠﹏⁠•⁠)}}$
 
 [<img width="70" height="50" alt="1000011341" src="https://github.com/user-attachments/assets/016b5097-9f2a-4b88-891a-8cee3d7f9370" />
 ](https://strawbe3ryfulm0thz.straw.page)  [<img width="70" height="50" alt="1000011339" src="https://github.com/user-attachments/assets/859e283b-5d11-445c-8079-9f1c24cfbf68" />](https://l0vee1s1chigo.atabook.org/)    [<img width="70" height="50" alt="1000011340" src="https://github.com/user-attachments/assets/0a82b811-e424-4c17-9df7-73ca2d5bf3a7" />](https://pronouns.cc/@Strawb3eryfulM4nate3) [<img width="99" height="56" alt="1000011335" src="https://github.com/user-attachments/assets/887473e2-783a-4085-891f-af6aece4cdac" />](https://arab.org/click-to-help/palestine/)
