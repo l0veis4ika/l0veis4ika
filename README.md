@@ -14,6 +14,23 @@
    
 ![cute](https://wilardo.crd.co/assets/images/gallery02/de77ed42_original.gif?v=31132c10) ㅤㅤㅤㅤ       ![](https://komarev.com/ghpvc/?username=tl0ve1s4ika&color=d380ce&label=+++PASTRIES++ORDERED+++&abreviated=true)
 
+<table>
+<tr>
+<td>
+<br>
+︵︵︵ ๑ ♡ ๑ ︵︵︵
+ 
+  My titles!
+ 
+  [wip]..
+
+<br>
+</td>
+</tr>
+</table>
+
+</div>
+
 <img width="314" height="93" alt="1000010350" src="https://github.com/user-attachments/assets/baee842d-2f0e-4a86-8cfe-860e3268efeb" />
 
 
