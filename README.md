@@ -22,7 +22,7 @@
  
   My titles!
  
-  [꒰♡˃̶̤́ ꒳ ˂̶̤̀ ꒱](https://github.com/kaotown)
+  [꒰♡˃̶̤́ ꒳ ˂̶̤̀ ꒱](https://github.com/kaotown) [(♡ˊ ꒳ ˋ)](https://github.com/kin-town)
 
 <br>
 </td>
