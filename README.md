@@ -25,7 +25,7 @@
   [꒰♡˃̶̤́ ꒳ ˂̶̤̀ ꒱](https://github.com/kaotown) [(♡ˊ ꒳ ˋ)](https://github.com/kin-town)
 [˚⊱🪷⊰˚](https://github.com/THE-TEMPIST) [๑ºั . ºั๑](https://github.com/piddlesjet)  
 
-[(˵◝ ⩊  ◜˵マ](https://github.com/Knox-Event)
+[(˵◝ ⩊  ◜˵マ](https://github.com/Knox-Event) [( ᴗ͈ˬᴗ͈)ഒ](https://github.com/music-town)
 
 <br>
 </td>
